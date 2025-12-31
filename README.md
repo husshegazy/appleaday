@@ -1,0 +1,1 @@
+If you're reading this, it's too late. You need to do better. You haven't reached your potential yet. You're wasting your time reading this. Go read something else. That book in your bookshelf, read that ? Too hard, grab a manga or something, at least pictures are more fun than words.
